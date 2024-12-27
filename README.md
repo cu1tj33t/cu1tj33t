@@ -1,7 +1,7 @@
 🌐 www.cultandjeet.xyz 
 📧 contact@cultandjeet.xyz 
-𝕏 https://x.com/CultJeet
-📱 https://t.me/cu1t@j33t
+𝕏 https://x.com/Cu1tJ33t
+📱 https://t.me/cu1txj33t
 
 
 $CUJ3 represents the perfect fusion of Cult loyalty and Jeet-proof resilience. Designed for dreamers, believers, and risk-takers.
